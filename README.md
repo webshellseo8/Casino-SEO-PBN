@@ -1,5 +1,8 @@
 # 🎯 Casino SEO Domination via PBNs - 2025 Guide
 
+![image](https://github.com/user-attachments/assets/1c37b9d0-eb33-47ea-9906-b6004efb4642)
+
+
 Welcome to the definitive guide on **ranking casino websites** using **advanced SEO strategies**, **PBNs (Private Blog Networks)**, and **high-authority backlinks**. If you're in the high-stakes world of iGaming, betting, or casino affiliates, this document is your blueprint for **outranking the competition**.
 
 [![Join Telegram](https://img.shields.io/badge/Join-Telegram-blue?style=for-the-badge&logo=telegram)](https://t.me/Seo_Labs)
