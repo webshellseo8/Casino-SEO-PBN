@@ -21,7 +21,7 @@ Key components include:
 - **Topical authority and content siloing**
 - **Link velocity and serp dominance**
 
-[![Join Telegram](https://img.shields.io/badge/Join-Telegram-blue?style=for-the-badge&logo=telegram)](https://t.me/Seo_Labs)
+[![Join Telegram](https://img.shields.io/badge/Join-Telegram-blue?style=for-the-badge&logo=telegram)](https://t.me/ZenithSupport_BOT)
 
 ---
 
@@ -37,7 +37,7 @@ Essential PBN tactics for casino SEO:
 - Geo-targeted hosting for **IP diversity**
 - Niche-relevant anchor texts like "online casino", "real money slots", "UK betting sites", etc.
 
-[![Join Telegram](https://img.shields.io/badge/Join-Telegram-blue?style=for-the-badge&logo=telegram)](https://t.me/Seo_Labs)
+[![Join Telegram](https://img.shields.io/badge/Join-Telegram-blue?style=for-the-badge&logo=telegram)](https://t.me/ZenithSupport_BOT)
 
 ---
 
@@ -57,7 +57,7 @@ Mix your backlink types to keep your link profile natural while dominating Googl
 - “Top sports betting sites UK”
 - “Real money slots no deposit”
 
-[![Join Telegram](https://img.shields.io/badge/Join-Telegram-blue?style=for-the-badge&logo=telegram)](https://t.me/Seo_Labs)
+[![Join Telegram](https://img.shields.io/badge/Join-Telegram-blue?style=for-the-badge&logo=telegram)](https://t.me/ZenithSupport_BOT)
 
 ---
 
@@ -71,7 +71,7 @@ Setting up your **casino PBN**? Follow this checklist:
 - 🔒 Hide outbound links with **JavaScript cloaking**
 - 📈 Drip-feed backlinks with **natural anchor variations**
 
-[![Join Telegram](https://img.shields.io/badge/Join-Telegram-blue?style=for-the-badge&logo=telegram)](https://t.me/Seo_Labs)
+[![Join Telegram](https://img.shields.io/badge/Join-Telegram-blue?style=for-the-badge&logo=telegram)](https://t.me/ZenithSupport_BOT)
 
 ---
 
@@ -87,7 +87,7 @@ Ranking for competitive terms requires **semantic keyword clusters**. Don't just
 
 These clusters increase your **topical authority** and reduce **keyword cannibalization**.
 
-[![Join Telegram](https://img.shields.io/badge/Join-Telegram-blue?style=for-the-badge&logo=telegram)](https://t.me/Seo_Labs)
+[![Join Telegram](https://img.shields.io/badge/Join-Telegram-blue?style=for-the-badge&logo=telegram)](https://t.me/ZenithSupport_BOT)
 
 ---
 
@@ -103,7 +103,7 @@ For ultra-competitive keywords, use **Parasite SEO** on:
 
 Then, blast these parasite pages with **tier 2 and tier 3 links** from your **PBN**, **Web 2.0s**, and **forum profiles**.
 
-[![Join Telegram](https://img.shields.io/badge/Join-Telegram-blue?style=for-the-badge&logo=telegram)](https://t.me/Seo_Labs)
+[![Join Telegram](https://img.shields.io/badge/Join-Telegram-blue?style=for-the-badge&logo=telegram)](https://t.me/ZenithSupport_BOT)
 
 ---
 
@@ -119,7 +119,7 @@ Avoid deindexation and penalties by:
 
 Bonus: Use **Cloudflare** + **email masking** for additional obfuscation.
 
-[![Join Telegram](https://img.shields.io/badge/Join-Telegram-blue?style=for-the-badge&logo=telegram)](https://t.me/Seo_Labs)
+[![Join Telegram](https://img.shields.io/badge/Join-Telegram-blue?style=for-the-badge&logo=telegram)](https://t.me/ZenithSupport_BOT)
 
 ---
 
@@ -127,7 +127,7 @@ Bonus: Use **Cloudflare** + **email masking** for additional obfuscation.
 
 We drop **live case studies**, **algorithm-proof link plans**, and **domain auctions** daily in our Telegram group. If you’re serious about Casino SEO, you *must* join.
 
-[![Join Telegram](https://img.shields.io/badge/Join-Telegram-blue?style=for-the-badge&logo=telegram)](https://t.me/Seo_Labs)
+[![Join Telegram](https://img.shields.io/badge/Join-Telegram-blue?style=for-the-badge&logo=telegram)](https://t.me/ZenithSupport_BOT)
 
 ---
 
@@ -137,9 +137,9 @@ Whether you're building your first PBN, or managing a 500-site network, the **Ca
 
 **Google won’t play fair. Why should you?**
 
-Start winning SERPs now — [Join Our Community](https://t.me/Seo_Labs)
+Start winning SERPs now — [Join Our Community](https://t.me/ZenithSupport_BOT)
 
-[![Join Telegram](https://img.shields.io/badge/Join-Telegram-blue?style=for-the-badge&logo=telegram)](https://t.me/Seo_Labs)
+[![Join Telegram](https://img.shields.io/badge/Join-Telegram-blue?style=for-the-badge&logo=telegram)](https://t.me/ZenithSupport_BOT)
 
 ---
 
